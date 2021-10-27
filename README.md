@@ -1,4 +1,6 @@
-### TAU LÀ THỊNH 👋
+### TAU LÀ THỊNH 🖕👌
+### 🖕🖕🖕TAU CÓ 1 CÁI THƯ VIỆN CHƠI CHỨNG KHOÁN AUTO WIN🖕🖕🖕
+### 🖕🖕🖕MÀY TẢI ĐƯỢC THÌ CHO MÀY XÀI LUÔN🖕🖕🖕
 <!--
 **thinh2904/thinh2904** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
